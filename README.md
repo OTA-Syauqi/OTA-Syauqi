@@ -4,6 +4,8 @@
 - 💞️ Just don't get too close, i can't control myself
 - 📫 How to reach me? You can't, i will be the one who is hunting you
 
+- Sorry i was just being silly :)
+
 <!---
 OTA-Syauqi/OTA-Syauqi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
